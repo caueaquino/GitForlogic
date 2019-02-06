@@ -11,6 +11,8 @@ Alteração Branch v1.0
 
 tamy passou por aq
 
+alteração 7
+
 alteração 3
 
 alteração 6
